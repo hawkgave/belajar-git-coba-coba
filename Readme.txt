@@ -14,3 +14,5 @@ new lagi
 apanich
 
 mike jdi jodohku
+
+8 omg kren
