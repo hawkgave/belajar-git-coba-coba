@@ -12,3 +12,5 @@ lagi
 new lagi
 
 apanich
+
+mike jdi jodohku
