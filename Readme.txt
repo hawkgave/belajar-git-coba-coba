@@ -18,3 +18,5 @@ mike jdi jodohku
 8 omg kren
 
 satu lagi
+
+last tadi kukira error
