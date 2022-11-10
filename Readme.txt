@@ -6,3 +6,5 @@ duh pengen boci,, bobociangg
 tapi hrus ke ngasem hueEEEEEEE
 besook ku tidak tidur nyenyak lagi bcoz tidak turu di kosan
 hmm
+
+lagi
